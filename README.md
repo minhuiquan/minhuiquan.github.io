@@ -1,1 +1,1 @@
-# minhuiquan.github.io
+# [minhuiquan.github.io](https://hoo.be/yhsp)
